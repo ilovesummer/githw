@@ -1,2 +1,2 @@
-Vitaly Erokhin
+VE
 
